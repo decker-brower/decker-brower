@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm a Full-Stack Web Developer working in Hamilton, Montana.
+8+ years professional experience as a Full-Stack Web Developer.
 
 ### Stats
 
