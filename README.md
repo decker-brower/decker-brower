@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-8+ years professional experience as a Full-Stack Web Developer.
+12+ years professional experience as a Full-Stack Software Engineer.
 
 ### Stats
 
